@@ -98,7 +98,7 @@ This code of conduct and its related procedures also applies to unacceptable beh
 
 dhirloveneesh@gmail.com, (+91) 8851408462
 
-### Mr. Shibam Dhar (Co -Lead)
+#### Mr. Shibam Dhar (Club Lead)
 
 shibam.dipu@gmail.com, (+91) 7217761321
 
